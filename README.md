@@ -1,2 +1,0 @@
-# gakca-
-Ahmed 
